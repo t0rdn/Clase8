@@ -1,7 +1,7 @@
 # Clase8
 ![caos2](https://github.com/user-attachments/assets/9b4f1061-18b7-4b6d-835a-722966c1ea30)
 ![estu2](https://github.com/user-attachments/assets/8617ec1a-89c9-429a-8d0d-9596cd4bd7bd)
-![lenguitas packing parte 2](https://github.com/user-attachments/assets/0b1682f8-e72c-4240-9358-c2b7cda40172)
+![lenguitas packing parte 2](https://github.com/user-attachments/assets/09e8faca-e4dd-43d2-a64d-9f37a2184452)
 ![Packing mascaditas 2](https://github.com/user-attachments/assets/9398475e-dec4-4a09-8b43-a3cb77ca04a2)
 ![CAJA](https://github.com/user-attachments/assets/69422d24-1db5-414c-92fb-6a425eb91f50)
 ![tarrorender2 (2)](https://github.com/user-attachments/assets/ba3ca86c-5449-46fb-a060-5c75b815ac7a)
